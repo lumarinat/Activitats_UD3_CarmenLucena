@@ -1,1 +1,0 @@
-# Activitats_UD3_CarmenLucena
